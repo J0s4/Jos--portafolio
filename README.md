@@ -1,0 +1,2 @@
+# Jos--portafolio
+conocimientos adquiridos
